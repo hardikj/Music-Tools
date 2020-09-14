@@ -1,2 +1,2 @@
 # Music-Tools
-Tools i used to market/promote my band
+Tools i use to market/promote my band
